@@ -1,2 +1,0 @@
-# GodinezSanch
-par de peluches
